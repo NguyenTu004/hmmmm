@@ -1,3 +1,0 @@
-# GitProject
-dsrgseutjcgkitrfkxkrtxfg
-agwfjabvljabgo
